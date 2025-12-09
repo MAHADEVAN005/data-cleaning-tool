@@ -112,7 +112,7 @@ Data Analyst & Front-End Developer
 
 GitHub: https://github.com/MAHADEVAN005  
 LinkedIn: https://www.linkedin.com/in/mahadevan-k-0a2718298  
-Email: mahadevan5563@gmail.com  
+Email: mahadevankaliyappan@gmail.com  
 
 ---
 
